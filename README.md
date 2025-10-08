@@ -1,4 +1,4 @@
-# The Rapture: Is Too Late? (My Story)
+# The Rapture: Is Too Late Already? (My Story)
 
 It was the most solemn of days.
 
