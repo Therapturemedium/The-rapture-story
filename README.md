@@ -78,7 +78,7 @@ The first two Trumpets prophesied in the Christian Bible has already been blown 
 
 ## What are the prophecies being fulfilled?
 
-Revelation 8:7 NKJV
+**Revelation 8:7 NKJV**
 
 [7] The first angel sounded: And hail and fire followed, mingled with blood, and they were thrown to the earth. And a third of the trees were burned up, and all green grass was burned up.
 
@@ -86,7 +86,7 @@ This happened in 2021.
 
 Where most of the largest forests were scorched by fire including the Amazon forest. This in total equates to about ⅓ of vegetation in the world.
 
-Revelation 8:8-9 NKJV
+**Revelation 8:8-9 NKJV**
 
 [8] Then the second angel sounded: And something like a great mountain burning with fire was thrown into the sea, and a third of the sea became blood. [9] And a third of the living creatures in the sea died, and a third of the ships were destroyed.
 
@@ -166,9 +166,9 @@ In our time, Jesus is our Noah's ark. Get into him before it's too late.
 
 The Rapture is a spiritual event that took place on November 21st, 2024. It's an unprecedented event that took the world by storm. It might happen again, this time—for the second or last time.
 
-This article was written under Jesus Christ Guidance.
+This article was written under **Jesus Christ** Guidance.
 
-…And the Trinity and Mary - Mother of Christ (....).
+…And the **Trinity** and **Mary - Mother of Christ** (....).
 
 
 
